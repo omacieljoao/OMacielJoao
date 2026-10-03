@@ -1,4 +1,4 @@
-# 👩🏻‍💻 João Maciel
+# 👨🏻‍💻 João Maciel
 
 **`Desenvolvedor Web`**
 
